@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with NFT-optimized opensea sniper bot | gas-optimization + multi-wallet-support. Featuring gas-optimization and multi-wallet-support, it's the
 
 
 
